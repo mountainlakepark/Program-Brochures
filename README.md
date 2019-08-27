@@ -1,2 +1,2 @@
 # Program-Brochures
-Program Brochures from Mountain Lake Park
+Program Brochures and othe related items from Mountain Lake Park
